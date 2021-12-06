@@ -1,4 +1,4 @@
-## <div style="text-align:center;">👋, I'm Aphideth ! </div>
+##👋, I'm Aphideth !
 *It's pronounced [afidɛt]*
 
 👨‍💻 
