@@ -1,4 +1,4 @@
-##👋, I'm Aphideth !
+## 👋, I'm Aphideth !
 *It's pronounced [afidɛt]*
 
 👨‍💻 
